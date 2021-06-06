@@ -1,3 +1,3 @@
-💻 Currently running the MLH Fellowship 
+💻 Program Manager, MLH Fellowship (2020 - present)
 
-🎓 Studying at the University of Birmingham
+🎓 Computer Science, University of Birmingham (2018 - 2021)
