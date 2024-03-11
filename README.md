@@ -1,3 +1,3 @@
-💻 Program Manager, MLH Fellowship (2020 - present)
+Hi, I'm Will 👋
 
-🎓 Computer Science, University of Birmingham (2018 - 2021)
+I'm a Developer Advocate with a background in Early Career Software Engineering Programs and Open Source!
